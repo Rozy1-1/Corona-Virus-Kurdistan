@@ -1,1 +1,1 @@
-# Corona-Virus-Kurdistan
+# corona-virus-as
